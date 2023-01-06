@@ -1,4 +1,4 @@
-# FrameworksUserGroup
+# Frameworks User Group
 Content for the Frameworks user group for designers
 
 
