@@ -6,7 +6,7 @@ Content for the Frameworks user group for designers
 ## Quotes  
 ————————————  
 
-Sameera Kapila  
+**Sameera Kapila**  
 - Inclusive Design Communities  
 - Shop Talk Show  
 - October 31, 2022  
